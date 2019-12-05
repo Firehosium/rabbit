@@ -110,3 +110,9 @@ This application is only for scientific research, learning, education, and all o
 About downloading:
 
 Only provide Google Play download channels, other download channels please be careful!
+
+
+
+
+打扰了 。
+您好，这里发现您的“小白兔vpn”软件被不良人士恶意安装了插件。不了解这方面，但对方瞎折腾的盗版软件还不少。总之这里只能先这样反馈啦。
